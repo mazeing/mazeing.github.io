@@ -10,7 +10,7 @@ Huang Renjun is a 23-Year-Old Korean Pop Idol from the group **NCT Dream** under
 - He debuted in their group, NCT DReam, when he was only 16 years old.
 ## Debut
 **Renjun have loved singing and performing since he was a kid and pursued his dream of becoming a performer. He was casted as a trainee through the SM Global Audition in Shenyang back in the year 2015, and made his debut on August 25, 2016.**
-### Talent
+## Talent
 He is not just simply attractive, he is also really talented. He is good in singing, dancing, acting, and performing in general. Here are some of his song and dance covers that would prove his talent:
 - [golden hour (JVKE](https://youtu.be/qYXgudKV7fI?si=ZDJsigIiVJG-vnTr)
 - [なんでもないや (RADWIMPS)](https://youtu.be/kBVdYh5G6cc?si=hrMDtA-3RfoFDl9n)
