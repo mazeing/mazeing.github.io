@@ -20,6 +20,6 @@ He wouldn't have made it to where he is right now without his talents. Renjun is
 - [认真的雪 (薛之谦)](https://youtu.be/MAnZ05fCATs?si=0uJSQjybIsSl3wQa)
 - ["Streets" by Doja Cat dance choreography with Bada Lee](https://youtu.be/yc_PHrSfHK4?si=tzdARhhM-C8nwZiF)
 - [RENJUN Focus in "BOOM" by NCT Dream dance practice](https://youtu.be/nRfnSLAuE1Y?si=iUKSLbOPARJiscNI)
-### STREAM !!
+### STREAM !! <3
 Their group made a comeback with the album *"ISTJ"* which is their 3rd **Full** album last July 17, 2023 consisting of 10 songs.
 [ISTJ - The 3rd Album](https://open.spotify.com/album/2uk29gcBkCLJZPTIQK9azh?si=FYJTgt0kSSSiP-sYfd7YVg)
