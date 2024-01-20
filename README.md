@@ -12,9 +12,9 @@ Huang Renjun is a 23-Year-Old Korean Pop Idol from the group **NCT Dream** under
 **Renjun have loved singing and performing since he was a kid and pursued his dream of becoming a performer. He was casted as a trainee through the SM Global Audition in Shenyang back in the year 2015, and made his debut on August 25, 2016.**
 ### Talent
 He is not just simply attractive, he is also really talented. He is good in singing, dancing, acting, and performing in general. Here are some of his song and dance covers that would prove his talent:
-- [Cover | RENJUN - golden hour (JVKE](https://youtu.be/qYXgudKV7fI?si=ZDJsigIiVJG-vnTr)
-- [Cover | RENJUN - なんでもないや (RADWIMPS)](https://youtu.be/kBVdYh5G6cc?si=hrMDtA-3RfoFDl9n)
-- [Cover | RENJUN - FOOLS (Troye Sivan)](https://youtu.be/OQ1INjhhqCk?si=0MoWEos670-zMplS)
-- [Cover | RENJUN - 认真的雪 (薛之谦)](https://youtu.be/MAnZ05fCATs?si=0uJSQjybIsSl3wQa)
+- [golden hour (JVKE](https://youtu.be/qYXgudKV7fI?si=ZDJsigIiVJG-vnTr)
+- [なんでもないや (RADWIMPS)](https://youtu.be/kBVdYh5G6cc?si=hrMDtA-3RfoFDl9n)
+- [FOOLS (Troye Sivan)](https://youtu.be/OQ1INjhhqCk?si=0MoWEos670-zMplS)
+- [认真的雪 (薛之谦)](https://youtu.be/MAnZ05fCATs?si=0uJSQjybIsSl3wQa)
 - ["Streets" by Doja Cat dance choreography with Bada Lee](https://youtu.be/yc_PHrSfHK4?si=tzdARhhM-C8nwZiF)
 - [RENJUN Focus in "BOOM" by NCT Dream dance practice](https://youtu.be/nRfnSLAuE1Y?si=iUKSLbOPARJiscNI)
